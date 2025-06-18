@@ -1,9 +1,7 @@
 <h2>嗷呜动漫官网，二次元爱好者的追番天堂|网页版入口|下载</h2>
 <p>嗷呜动漫是一个专注于动漫资源分享与观看的在线平台，汇集了国内外海量高清动漫资源，包括最新连载、经典老番、热门新番以及原创动漫资源。用户无需注册或登录即可直接观看，同时支持离线下载功能，方便用户在无网络环境下观看已下载的动漫内容。平台还设有丰富的互动社区功能，用户可以与其他动漫爱好者交流心得、分享资源，共同探讨剧情。</p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/15548.html" target="_blank" ><strong>嗷呜动漫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/97703bfac418" target="_blank" ><strong>⏬电子书/zlib资源包</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank" ><strong>⏬经典电影/无损音乐</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/46e182807bae" target="_blank" ><strong>⏬考公/办公资料包</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://aowutv.wwwnav.com/" target="_blank" ><strong>嗷呜动漫最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank" ><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
